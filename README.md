@@ -1,0 +1,1 @@
+# girljisoo-resource
